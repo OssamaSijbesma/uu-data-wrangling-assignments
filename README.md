@@ -17,4 +17,4 @@ https://docs.google.com/document/d/1FzIgpgbzTfh3xv444LorYjsLlK7m-cdQGrqMxT39Mpc/
 ## Assignment 2
 
 ### Google Doc for PDF
-https://docs.google.com/document/d/1JH7x-2_aQQHhcGidW_t3ps_OFFKock9S2sHF3Di5Sog/edit?usp=sharing
+https://docs.google.com/document/d/1rOx3O20H4_ZGuTJJyG9y5ZP12SjF5kjzp20Aou3V_p8/edit?usp=sharing
